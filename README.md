@@ -5,4 +5,4 @@ Have you ever been touched inappropriately in public buses?
 As a child, have you witnessed violence in public places as a form of intimidation?
 As a woman, have you ever filtered every form of logic, debates, arguments, intellectual honesty, valid statistics,
 mathematical formulas, or any tools of complex problems solving yet it seems tools or resources resolving
-women specific issues remains incomeptent?
+women specific issues remains incompetent?
